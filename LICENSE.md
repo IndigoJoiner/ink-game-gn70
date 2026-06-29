@@ -1,4 +1,4 @@
-#  
+#  hidden ink game Script is the best ink game Script, featuring infinite resources and unlimited stamina. Safe and powerful for all your needs.
 
 
 
